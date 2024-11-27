@@ -20,10 +20,10 @@ Here’s a look at **30 innovative AI business ideas** you can explore:
 ** 
    Use AI to create engaging, bite-sized content for social media platforms like Instagram Reels and TikTok.
 
-### 2. **Customer Service Automation**
+### 2. **[Customer Service Automation](https://aijourney.so/ai-academy/this-customer-service-automation-side-hustle-makes-400--day)
    Offer AI chatbot solutions to streamline customer inquiries and boost satisfaction.
 
-### 3. **Social Media Ghostwriting**
+### 3. **[Social Media Ghostwriting](https://aijourney.so/ai-academy/fact-of-social-media-ghostwriting-as-a-profitable-side-hustle)
    Provide AI-assisted content creation services for businesses to maintain a strong online presence.
 
 ### 4. **AI-Powered Copywriting**
