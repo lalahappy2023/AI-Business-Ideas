@@ -26,10 +26,10 @@ Here’s a look at **30 innovative AI business ideas** you can explore:
 ### 3. **[Social Media Ghostwriting](https://aijourney.so/ai-academy/fact-of-social-media-ghostwriting-as-a-profitable-side-hustle)
    Provide AI-assisted content creation services for businesses to maintain a strong online presence.
 
-### 4. **AI-Powered Copywriting**
+### 4. **[AI-Powered Copywriting](https://aijourney.so/ai-academy/how-to-start-and-succeed-with-copywriting-side-hustle)
    Create high-converting ad copy, email campaigns, and product descriptions using AI tools.
 
-### 5. **Personalized Nutrition Planning**
+### 5. [Personalized Nutrition Planning](https://aijourney.so/ai-academy/make-money-helping-others-with-nutrition-planning)
    Build AI-based meal plans tailored to individual dietary needs and goals.
 
 ### 6. **AI Fitness Coaching**
